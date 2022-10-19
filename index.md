@@ -27,4 +27,4 @@
 <img align="left" width="150" src="https://github.com/ZYP123678/ZYP123678.github.io/blob/main/00e1fe879ef05e4b0624197f7aee6ec.jpg?raw=true">    
 
 
-<img align="right" width="300" src="https://github.com/ZYP123678/ZYP123678.github.io/blob/main/74014911f27f4d40b71741cc4f79a03.jpg?raw=true">  
+<img align="right" width="300" src="https://github.com/ZYP123678/ZYP123678.github.io/blob/main/74014911f27f4d40b71741cc4f79a03.jpg?raw=true">    
