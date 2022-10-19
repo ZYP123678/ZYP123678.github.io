@@ -24,7 +24,7 @@
   
   &emsp;&emsp;亲爱的访客哟，你一定认识到了我吧，说不定你已经产生了要和我交朋友的想法，但我是不会把我的联系方式留下的（球球别人肉我），佛说，前世的五百次回眸才换来今生的一次擦肩而过，相逢即是缘，咱们有猿自会相见。风紧扯呼。最后，赠你一句话“不要温和地走进那良夜，当怒斥那光的消散。”  
   
-<img align="left" width="150" src="https://github.com/ZYP123678/ZYP123678.github.io/blob/main/00e1fe879ef05e4b0624197f7aee6ec.jpg?raw=true">    
+<img align="left" width="300" src="https://github.com/ZYP123678/ZYP123678.github.io/blob/main/00e1fe879ef05e4b0624197f7aee6ec.jpg?raw=true">    
 
 
 <img align="right" width="300" src="https://github.com/ZYP123678/ZYP123678.github.io/blob/main/74014911f27f4d40b71741cc4f79a03.jpg?raw=true">    
